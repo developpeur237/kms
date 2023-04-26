@@ -1,1 +1,1 @@
-# office-2013
+# KMS activators
